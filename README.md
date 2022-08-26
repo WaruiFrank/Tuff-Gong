@@ -1,3 +1,3 @@
 # Trial
 
-I'll become a pro.
+I'll become a pro!
